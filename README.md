@@ -1,1 +1,1 @@
-# here are mine projects
+# here are my projects
